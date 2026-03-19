@@ -1,7 +1,7 @@
 # ERASMUS IN MALTA
 ## Practical Tips for Exchange Students
 
-**Students:** [numery wpisz tutaj] – Joanna Hobana, Jan Wawoczny
+**Students:** 138307 Krzysztof Klonik, 208497 Jakub Zakroczynski, 202083 Jan Wawoczny
 
 > Make your stay safe, enjoyable and unforgettable!
 

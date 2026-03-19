@@ -1,6 +1,8 @@
 # ERASMUS IN MALTA
 ## Practical Tips for Exchange Students
 
+**Students:** [numery wpisz tutaj] – Joanna Hobana, Jan Wawoczny
+
 > Make your stay safe, enjoyable and unforgettable!
 
 ---

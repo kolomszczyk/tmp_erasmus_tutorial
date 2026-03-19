@@ -1,7 +1,7 @@
+**Students:** 138307 Krzysztof Kłomski, 208497 Jakub Zakroczynski, 202083 Jan Wawoczny
+
 # ERASMUS IN MALTA
 ## Practical Tips for Exchange Students
-
-**Students:** 138307 Krzysztof Kłomski, 208497 Jakub Zakroczynski, 202083 Jan Wawoczny
 
 > Make your stay safe, enjoyable and unforgettable!
 

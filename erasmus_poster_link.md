@@ -1,1 +1,0 @@
-erasmus_poster.md
